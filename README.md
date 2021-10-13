@@ -1,2 +1,2 @@
-# iphcbacnotan.com
-IPHC
+# iphcbacnotan
+ INTERNATIONAL PENTECOSTAL HOLINESS CHURCH - BACNOTAN
